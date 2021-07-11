@@ -1,1 +1,1 @@
-# teachlive - teaching individual like in-person is fun again.
+teaching made fun again.
