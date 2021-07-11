@@ -1,1 +1,1 @@
-# teachlive - teaching nperson again.
+# teachlive - teaching individual like in-person is fun again.
